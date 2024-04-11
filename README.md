@@ -1,1 +1,1 @@
-# Statistics_2022_autumn
+# 2024 Pavasaris (biostatistikos pratybos)
